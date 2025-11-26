@@ -8,7 +8,7 @@ Every so often, someone in the tech industry does something so unexpected, so re
 Most know him as a technology professional—a leader who understands systems, teams, and innovation. Others know him as a dynamic singer and entertainer whose stage presence can captivate any room. But when he stepped onto the stage of Wheel of Fortune,
 
 Maximize image
-Edit image
+Edit image 
 Delete image
 
 Jones holding the coveted Million-Dollar wedge on Wheel of Fortune
